@@ -1,0 +1,5 @@
+- Hi, I’m @Wikbro09
+- I’m interested in not using github
+- I’m currently learning cs
+- I’m looking to collaborate on nothing
+- How to reach me: You don't
